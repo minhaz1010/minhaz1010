@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **minhazrahman1010@gmail.com**
 
-- ⚡ Fun fact **An honest person**
+- ⚡ Fun fact **Response Not Found**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
